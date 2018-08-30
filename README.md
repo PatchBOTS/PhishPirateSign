@@ -1,4 +1,4 @@
-[![Phish](https://i.imgur.com/TIgMLv8.mp4)](https://youtu.be/Kh_fvdCk7NA)
+[![Phish](https://i.imgur.com/5fMRVzT.jpg)](https://youtu.be/Kh_fvdCk7NA)
 # Phish NYE 2017 XyloBand Hack Pirate Sign
 
 ## Overview
